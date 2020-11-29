@@ -11,3 +11,6 @@
 
 ## Tugas Pertemuan 5
 ![IK2C_Isma Shafira_33419227_Tugas Percabangan,Pertemuan 5](https://user-images.githubusercontent.com/73771548/99178369-02e94200-2745-11eb-91c2-5678f0313958.jpg)
+
+## Tugas Pertemuan 6
+![IK2C_Isma Shafira_33419227_Pertemuan6](https://user-images.githubusercontent.com/73771548/100538681-d4e72000-3263-11eb-89d4-e185025217ad.jpg)
