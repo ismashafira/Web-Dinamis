@@ -14,3 +14,4 @@
 
 ## Tugas Pertemuan 6
 ![IK2C_Isma Shafira_33419227_Pertemuan6](https://user-images.githubusercontent.com/73771548/100538681-d4e72000-3263-11eb-89d4-e185025217ad.jpg)
+![IK2C_Isma Shafira_33419227_pertemuan6(2)](https://user-images.githubusercontent.com/73771548/100538715-1972bb80-3264-11eb-8fda-84e0c741f741.jpg)
